@@ -2,7 +2,7 @@
 
 ### Connect with me:
 
-SOON
+https://yigitdev.com
 
 ### Languages and Tools:
 
